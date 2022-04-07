@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @PhekoTeboh
-- 👀 I’m interested in development
+- 👀 I’m interested in software development
 - 🌱 I’m currently learning information technology
 - 💞️ I’m looking to collaborate on Microsoft teams
 - 📫 How to reach me 0735785343 alternatively 220009129@stud.cut.ac.za
